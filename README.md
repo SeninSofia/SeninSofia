@@ -8,4 +8,5 @@
   
 ##
 
-![CURRICULUM VITAE - PESCAR_pages-to-jpg-0001](https://user-images.githubusercontent.com/109605598/179775968-667427b5-2aec-4a8c-a569-57a323722e4a.jpg)
+![CURRICULUM VITAE - PESCAR_page-0001](https://user-images.githubusercontent.com/109605598/179778832-7e749341-4ddf-4c12-81c7-091cc51d59af.jpg)
+
