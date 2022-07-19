@@ -7,4 +7,5 @@
 </div>
   
 ##
-[CURRICULUM VITAE - PESCAR.pdf](https://github.com/SeninSofia/SeninSofia/files/9141930/CURRICULUM.VITAE.-.PESCAR.pdf)
+
+![CURRICULUM VITAE - PESCAR_pages-to-jpg-0001](https://user-images.githubusercontent.com/109605598/179775968-667427b5-2aec-4a8c-a569-57a323722e4a.jpg)
